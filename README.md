@@ -1,1 +1,0 @@
-# jorgeluiztaioque.github.io
